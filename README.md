@@ -1,0 +1,1 @@
+# ValorCAD2020_ArchiTechs-submission
